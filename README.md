@@ -19,7 +19,7 @@ it's gonna be TRE LIT.
 
 ## Opinions on Oklomsy.
 
-i fucking hate oklomsy. he is a bad human, see https://sparksammy.com/oklomsy-truth. I am no saint either, but if you add him and "befriend" him you will see why I raged near the end. i say befriend in quotes bc you cannot befriend Oklomsy unless you are good in his eyes, which is near impossible.
+i fucking hate oklomsy. he is a bad human, see https://sparksammy.com/oklomsy-truth. (or if you are using TOR, please use the TOR mirror: tj4cxasnka7ex66zyfjau7e3rjznepdsr3gjjdv3mxqk6l73qu6hdoqd.onion/oklomsy-truth)  I am no saint either, but if you add him and "befriend" him you will see why I raged near the end. i say befriend in quotes bc you cannot befriend Oklomsy unless you are good in his eyes, which is near impossible.
 
 ## Opinions on Daft Punk
 

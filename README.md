@@ -8,7 +8,7 @@ it's gonna be TRE LIT.
 * Stallman has no filter.
 * The Epstien incident was a misunderstanding.
   * Basically he didnt know his teacher would do such a thing.
-  * And, since he has 0 filter, he said that Sexual Assault has to do with sex, not the mind.
+  * And, since he has 0 filter, he said that Sexual Assault should have to do with sex, not the mind.
 
 ## Opinions on Linus Torvalds
 
